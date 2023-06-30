@@ -1,4 +1,4 @@
-### Olá!! Eu sou o Gabriel Zambianco, também conhecido como Gabs ou Zambs 👋
+### Olá!! Eu sou o Gabriel Zambianco, também conhecido como Gabs👋
 
 <div align="center">
   <a href="https://github.com/zambgab">
